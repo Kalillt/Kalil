@@ -1,1 +1,1 @@
-# Kalil
+# Kalil Com esta começo a programar cada vez melhor no html, procuro me expressar e falar um pouco sobre mim, expressar algumas ideias e talvez algumas criações. Conforme vou aprendendo vou ir melhorando essa página, deixando ela mais complexa e com mais informação, mais expressiva.
